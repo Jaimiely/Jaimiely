@@ -6,4 +6,4 @@
 - 👯 I’m looking to collaborate on geologic maps (planets)
 - 📫 How to reach me: jgarcia15@tulane.edu
 - 😄 Pronouns: any, but more comfortable with she/they
-- ⚡ Fun fact: I like collecting rocks
+- ⚡ Fun fact: I like collecting rocks and my favorite anime is One Piece
